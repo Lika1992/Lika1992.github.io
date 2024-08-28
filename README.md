@@ -1,2 +1,3 @@
 # Lika1992.github.io
-Community activist and changer advocate
+#About Me: Likambo Isaac Kangu is a Community activist and changer advocate 
+#What I do: 
